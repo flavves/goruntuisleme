@@ -1,0 +1,2 @@
+https://batuhanokmen.com/
+# goruntuisleme
